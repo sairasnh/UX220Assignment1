@@ -1,1 +1,7 @@
-Research here
+Similar to the academic goals discussed in the article, I recognize the importance of setting clear, measurable objectives in my personal life. In my hypothetical goals, I outlined specific targets in various categories such as Travel Adventures, Health and Wellness, Creative Endeavors, and Educational Pursuits, mirroring the focus on goal-setting in the academic setting.
+
+However, one notable contrast lies in the nature of the goals themselves. While the article primarily discusses academic goals related to language proficiency, my personal goals span a wider range of life experiences, including travel, fitness, creative pursuits, and career advancement. This broader scope reflects a holistic approach to personal growth and fulfillment beyond the confines of academic achievement alone.
+
+Moreover, the article's emphasis on LinguaFolio, a tool for self-assessment and evidence collection in language learning, highlights a structured and formalized approach to goal-setting within the classroom. In contrast, my personal goals, though equally important to me, are less formalized and standardized. They reflect individual passions, interests, and aspirations, which may not always conform to an academic framework.
+
+References: MOELLER, ALEIDINE J., et al. “Goal Setting and Student Achievement: A Longitudinal Study.” The Modern Language Journal, vol. 96, no. 2, 2012, pp. 153–69. JSTOR, http://www.jstor.org/stable/41684067. Accessed 29 Sept. 2023.
